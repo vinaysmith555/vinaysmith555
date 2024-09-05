@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @vinaysmith555
+- 👀 I’m interested in data analysis and product development
+- 🌱 I’m currently learning data analysis and data strategics
+- 😄 Pronouns: he
+- ⚡ life quote : Intelligence is a powerful attribute that has been around for centuries. The quote 'Intelligence is the ability to adapt to change' by "stephen hawking".
+- los angeles,california USA
